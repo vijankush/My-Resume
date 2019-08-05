@@ -1,2 +1,2 @@
 # Ankush Vij's Resume
-![alt text](https://i.imgur.com/d9vSnD1.jpg)
+![alt text](https://i.imgur.com/BaCfIt5.jpg)
